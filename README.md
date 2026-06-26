@@ -1,5 +1,5 @@
 # 💫 About Me:
-A Software developer with 1+ YOE based out of India<br>
+A Software developer with 2+ YOE <br>
 
 
 ## 🌐 Socials:
